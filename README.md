@@ -2,6 +2,6 @@
 
 #### ****- Aluno: Angeli Fiorese****
 
-##### ****- Turma: 1R****
+##### ****- Turma: 2° Q 🧀**** 
 
 # *****:Joinha:*****
